@@ -8,4 +8,4 @@
 -영남대 통계학과 재학중
 
 ## Links
-E-mail - haehyun1003@yu.ac.kr
+E-mail - jaehyun1003@yu.ac.kr
